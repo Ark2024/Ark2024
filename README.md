@@ -1,0 +1,4 @@
+- 👋 Hi, I’m Parth Sharma
+- 👀 I’m interested in Coding and Gaming
+- 🌱 I’m currently a Freshman
+- 💞️ I’m looking to collaborate on The ease of using computers
